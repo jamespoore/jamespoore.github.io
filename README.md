@@ -1,1 +1,0 @@
-# jamespoore.github.io
